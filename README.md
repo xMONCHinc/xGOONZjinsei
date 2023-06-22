@@ -1,0 +1,2 @@
+# xGOONZjinsei
+Controllable xGOONZlife
